@@ -1,4 +1,4 @@
-## TOP 5 Reisedestinationen
+## TOP 6 Reisedestinationen
 1. Madeira
 2. Sansibar
 3. Mauritius
